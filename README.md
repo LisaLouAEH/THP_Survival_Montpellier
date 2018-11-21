@@ -23,19 +23,13 @@
 
 ### Comment s'alimenter mal et pas trop cher/ 
   
-  *  <a href="http://www.lacrisepizza.fr/">La crise pizza</a> --> 1 euros la grosse part de pizza, c'est mal, mais ca cale !  
-  **rue de l'aiguillerie**    
-  *  Le carrefour market --> salade, gateau, bonbon etc ..  
-  **rue saint guilhem**  
+  *  <a href="http://www.lacrisepizza.fr/">La crise pizza</a> --> 1 euros la grosse part de pizza, c'est mal, mais ca cale ! **rue de l'aiguillerie**    
+  *  Le carrefour market --> salade, gateau, bonbon etc .. **rue saint guilhem**  
   *  Les recomandation de l'expert culinaire de la session *6*:  
-    *  <a href="http://bagelandu.com/">Bagel & U</a> --> (6 à 10€)  
-    **rue de l'aiguillerie**  
-    *  <a href="https://www.desrevesetdupain.com/fr">Des rêves et du pain</a> --> (4 et 7€)  
-    **Rue Eugène Lisbonne**  
-    *  Boulangerie Gourmandiz --> (5 a 8€)  
-    **Rue saint guilhem**  
-    *  <a href="https://www.hba1c-gourmand.fr/">Le spot gourmand</a> --> (6 à 10€)  
-    **Rue du Bayle**
+    *  <a href="http://bagelandu.com/">Bagel & U</a> --> (6 à 10€) **rue de l'aiguillerie**  
+    *  <a href="https://www.desrevesetdupain.com/fr">Des rêves et du pain</a> --> (4 et 7€) **Rue Eugène Lisbonne**  
+    *  Boulangerie Gourmandiz --> (5 a 8€) **Rue saint guilhem**  
+    *  <a href="https://www.hba1c-gourmand.fr/">Le spot gourmand</a> --> (6 à 10€) **Rue du Bayle**
   *  Et bien-entendu la méthode ultime économique et un poil chronophage est de faire votre gamelle chez vous. L'anacrouse dispose d'un micro-onde.  
   
 
