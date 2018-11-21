@@ -16,10 +16,22 @@
   Sans transition, Moussaillon, abordons ici le choix de ton navire !  
   *  Notre belle ville de Montpellier dispose d'un partenaire trés sérieux et trés amicale, en la personne de Sylvain qui gère un espace hors du commun :  <a href="https://www.lanacrouse.fr/">L'anacrouse !</a>  
   En tant que partenaire officiel du THP, L'anacrouse propose un tarif (50euros/mois/pers.) défiant toute concurrences pour son espace de coworking. Situé en plein coeur du quartier Saint Anne, à coté du conservatoire, tu disposera d'une grande salle avec table, chaise, (même canapé), prise electrique, WIFI, et tu aura accés à cette espace, 24h/24h et 7/7 jours. 
+  *  Pour les plus gros budget, il y a aussi <a href="https://www.comenwork.com/">cet espace là</a> qui est aussi en plein centre ville, trés agréable, bonne connectivité, et une salle de réu avec tableau et tout. J'ai rencontré le proprio qui est trés amicale, mais les tarifs bien que trés adaptables, reste un peu au dessus des bourses de la plus part des moussaillons.  
   *  Dans le domaine public, il est aussi possible de se rassembler à la médiathèque mais compte tenu de ses horaires, de l'instabilité de son réseau wifi, et de la nécéssité 'de ne pas faire de bruit'... Je déconseille fortement cette option.  
   *  Il est aussi possible que l'un des membres du groupe, dispose déjà de son propre navire et qu'il soit prêt à acceuillir chez lui l'équipage pendant 11 semaines. 
-  *  Une autre alternative assez improbable que j'ai expérimenté à été de louer un gite à Aniane (<a href="https://www.lavillagerie.com/">La villagerie</a>), la propriétaire (une amie d'amis) est sympatisante de la philosphie THP, dispose d'une connectivité internet contre toute attente, trés bonne, de plusieurs gites trés finements mis en valeur dans une ambiance cosy et chaleureuse, de nombreuses balades de pleine nature pour s'oxygener les neurones, et vous proposera des tarifs trés avantageux hors saison estival et printanière, si vous la contacter en tant que moussaillon. L'experience de vivre en colocation avec son équipage, de partager repas, taches ménagères, apero et ronflerie est un accélérateur de création de lien humains, mais peux reveller parfois quelques désavantages. Je vous conseille donc de vous diriger dans cette voie uniquement entre moussaillons adultes et responsables.  
+  *  Une autre alternative assez improbable que j'ai expérimenté à été de louer un gite à Aniane (<a href="https://www.lavillagerie.com/">La villagerie</a>), la propriétaire (une amie d'amis) est sympatisante de la philosphie THP, dispose d'une connectivité internet contre toute attente, trés bonne, de plusieurs gites trés finements mis en valeur dans une ambiance cosy et chaleureuse, de nombreuses balades de pleine nature pour s'oxygener les neurones, et vous proposera des tarifs trés avantageux hors saison estival et printanière, si vous la contacter en tant que moussaillon. L'experience de vivre en colocation avec son équipage, de partager repas, taches ménagères, apero et ronflerie est un accélérateur de création de lien humains, mais peux reveller parfois quelques pièges, soyez en informé.    
 
-### Comment s'alimenter mal et pas trop cher/  
+### Comment s'alimenter mal et pas trop cher/ 
+  
+  *  La crise pizza --> 1 euros la grosse part de pizza, c'est mal, mais ca cale !  
+  *  Le carrefour market rue saint guilhem --> salade, gateau, bonbon etc ..  
+  *  Les recomandation de l'expert culinaire de la session *6*:  
+    * Bagel & U --> (6 à 10€)  
+    * Des rêves et du pain --> (4 et 7€)  
+    * Gourmandiz --> (5 a 8€)  
+    * Le spot gourmand --> (6 à 10€)  
+  *  Et bien-entendu la méthode ultime économique et un poil chronophage est de faire votre gamelle chez vous. L'anacrouse dispose d'un micro-onde.  
+  
+  
 ### Ou sortir décompresser un peu (parcequ'il faut aussi)/  
 ### Les 10 astuces que j'aurais aimer qu'on me file le premier jour de ma moussallonerie/  
