@@ -23,13 +23,19 @@
 
 ### Comment s'alimenter mal et pas trop cher/ 
   
-  *  La crise pizza --> 1 euros la grosse part de pizza, c'est mal, mais ca cale !  
-  *  Le carrefour market rue saint guilhem --> salade, gateau, bonbon etc ..  
+  *  <a href="http://www.lacrisepizza.fr/">La crise pizza</a> --> 1 euros la grosse part de pizza, c'est mal, mais ca cale !  
+  **rue de l'aiguillerie**    
+  *  Le carrefour market --> salade, gateau, bonbon etc ..  
+  **rue saint guilhem**  
   *  Les recomandation de l'expert culinaire de la session *6*:  
-    *  Bagel & U --> (6 à 10€)  
-    *  Des rêves et du pain --> (4 et 7€)  
-    *  Gourmandiz --> (5 a 8€)  
-    *  Le spot gourmand --> (6 à 10€)  
+    *  <a href="http://bagelandu.com/">Bagel & U</a> --> (6 à 10€)  
+    **rue de l'aiguillerie**  
+    *  <a href="https://www.desrevesetdupain.com/fr">Des rêves et du pain</a> --> (4 et 7€)  
+    **Rue Eugène Lisbonne**  
+    *  Boulangerie Gourmandiz --> (5 a 8€)  
+    **Rue saint guilhem**  
+    *  <a href="https://www.hba1c-gourmand.fr/">Le spot gourmand</a> --> (6 à 10€)  
+    **Rue du Bayle**
   *  Et bien-entendu la méthode ultime économique et un poil chronophage est de faire votre gamelle chez vous. L'anacrouse dispose d'un micro-onde.  
   
 
