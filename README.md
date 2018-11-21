@@ -26,12 +26,12 @@
   *  La crise pizza --> 1 euros la grosse part de pizza, c'est mal, mais ca cale !  
   *  Le carrefour market rue saint guilhem --> salade, gateau, bonbon etc ..  
   *  Les recomandation de l'expert culinaire de la session *6*:  
-    * Bagel & U --> (6 à 10€)  
-    * Des rêves et du pain --> (4 et 7€)  
-    * Gourmandiz --> (5 a 8€)  
-    * Le spot gourmand --> (6 à 10€)  
+    *  Bagel & U --> (6 à 10€)  
+    *  Des rêves et du pain --> (4 et 7€)  
+    *  Gourmandiz --> (5 a 8€)  
+    *  Le spot gourmand --> (6 à 10€)  
   *  Et bien-entendu la méthode ultime économique et un poil chronophage est de faire votre gamelle chez vous. L'anacrouse dispose d'un micro-onde.  
   
-  
+
 ### Ou sortir décompresser un peu (parcequ'il faut aussi)/  
 ### Les 10 astuces que j'aurais aimer qu'on me file le premier jour de ma moussallonerie/  
